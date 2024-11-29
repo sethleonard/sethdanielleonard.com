@@ -1,0 +1,13 @@
+---
+title: "Seth Daniel Leonard"
+draft: false
+---
+
+The bubbling mind would finally breach the surface  
+Despite a rooted fear that words are worthless  
+New tools and age allow the page some air  
+The map's no longer just a road to there  
+For we have given a fluttering pen its task  
+Return here later to follow the journey's path  
+
+\- *seth daniel leonard*
